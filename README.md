@@ -1,0 +1,1 @@
+# laspinas_ict10ruby_sw1_qt2_noemayrfix
